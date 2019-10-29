@@ -17,6 +17,9 @@ Shivam Gupta (Delhi)
 Ayush Das (Delhi)
 
 
+Kriti Sanon(Delhi)
+
+
 Vartika(Bhopal)
 
 
